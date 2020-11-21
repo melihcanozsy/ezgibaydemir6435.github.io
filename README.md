@@ -1,1 +1,0 @@
-# ezgibaydemir6435.github.io
